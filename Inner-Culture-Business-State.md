@@ -60,4 +60,4 @@ Liberty Athletic Club: HR, Colette Kress — Colette.kress@libertyathletic.net.
 Dr. Lu’s Office: 734-712-8150
 
 CURRENT Currently
-Currently building the teaching network in the Ann Arbor area, completing Chelsea Wellness onboarding, developing the SimplePractice infrastructure for classes, and promoting upcoming Qigong/Yang Shenings. Dexter Senior Center is an active opportunity awaiting scheduli.”
+Currently building the teaching network in the Ann Arbor area, completing Chelsea Wellness onboarding, developing the SimplePractice infrastructure for classes, and promoting upcoming Qigong/Yang Shenings. Dexter Senior Center is an active opportunity awaiting scheduling
