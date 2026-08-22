@@ -1,8 +1,6 @@
 **ACTIVE TASKS**
 
 ☐ Birthday present for my brother
- 
-☐ Explore SimplePractice group appointments.
 
 ☐ outreach target contact 
  
