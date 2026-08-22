@@ -5,6 +5,8 @@
 ☐ Add Tai Chi/Qigong Consent Form to SimplePractice.
  
 ☐ Explore SimplePractice group appointments.
+
+☐ outreach target contact 
  
 ☐ Complete Chelsea Wellness onboarding: 3 trainings plus CPR.
  
@@ -17,8 +19,6 @@
 ☐ Announce the Qigong class on Patreon.
  
 ☐ Create the flyer for the Yang Sheng class.
- 
-☐ Contact Washtenaw Community College about health and fitness.
  
 **WAITING / FOLLOW-UP**
  
