@@ -16,8 +16,6 @@ social media post yang sheng
  
 ☐ Create the MailerLite plan.
  
-☐ Announce the online Qigong class.
- 
 ☐ Announce the Qigong class on Patreon.
  
 ☐ Create the flyer for the Yang Sheng class.
