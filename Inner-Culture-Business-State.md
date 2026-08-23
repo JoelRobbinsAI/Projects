@@ -10,7 +10,7 @@ social media post yang sheng
 
 ☐ collect active student list 
 
-☐ outreach target contact 
+☐ outreach target create prefabbed emails
  
 ☐ Complete Chelsea Wellness onboarding: 3 trainings plus CPR.
  
