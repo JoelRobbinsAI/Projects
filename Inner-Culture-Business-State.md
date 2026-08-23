@@ -1,5 +1,9 @@
 **ACTIVE TASKS**
 
+social media post Qigong
+
+social media post yang sheng
+
 ☐ Birthday present for my brother
 
 ☐ collect active student list 
