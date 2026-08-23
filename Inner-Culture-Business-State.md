@@ -21,6 +21,8 @@ put up flyer for Yang Sheng class.
 ☐ Create the MailerLite plan.
  
 ☐ Announce the Qigong class on Patreon.
+
+Add Edie classes to website
  
 **WAITING / FOLLOW-UP**
  
