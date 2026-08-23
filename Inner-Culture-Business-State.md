@@ -1,7 +1,5 @@
 **ACTIVE TASKS**
 
-☐ make new tally form
-
 ☐ Birthday present for my brother
 
 ☐ outreach target contact 
