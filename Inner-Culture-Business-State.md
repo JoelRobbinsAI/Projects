@@ -4,7 +4,9 @@ social media post Qigong
 
 social media post yang sheng
 
-☐ Create the flyer for the Yang Sheng class.
+☐ Create the flyer for the Qigong class
+
+put up flyer for Yang Sheng class.
 
 ☐ Birthday present for my brother
 
