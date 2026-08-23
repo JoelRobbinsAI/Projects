@@ -4,6 +4,8 @@ social media post Qigong
 
 social media post yang sheng
 
+☐ Create the flyer for the Yang Sheng class.
+
 ☐ Birthday present for my brother
 
 ☐ collect active student list 
@@ -17,8 +19,6 @@ social media post yang sheng
 ☐ Create the MailerLite plan.
  
 ☐ Announce the Qigong class on Patreon.
- 
-☐ Create the flyer for the Yang Sheng class.
  
 **WAITING / FOLLOW-UP**
  
