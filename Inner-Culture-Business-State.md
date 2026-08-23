@@ -2,6 +2,8 @@
 
 ☐ Birthday present for my brother
 
+☐ collect active student list 
+
 ☐ outreach target contact 
  
 ☐ Complete Chelsea Wellness onboarding: 3 trainings plus CPR.
