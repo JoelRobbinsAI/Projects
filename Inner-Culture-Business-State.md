@@ -1,21 +1,17 @@
 **ACTIVE TASKS**
 
-Set up Zoom for Wednesday’s online Qigong class
+Test Zoom for Wednesdays class
 
 social media post Qigong
 
 social media post yang sheng
 
-☐ Create the flyer for the Qigong class
-
-put up flyer for Yang Sheng class.
+put up flyer for Yang Sheng/Qigong class.
 
 ☐ Birthday present for my brother
 
 ☐ collect active student list 
 
-☐ outreach target create prefabbed emails
- 
 ☐ Complete Chelsea Wellness onboarding: 3 trainings plus CPR.
  
 ☐ Collect emails for the newsletter.
