@@ -1,5 +1,7 @@
 **ACTIVE TASKS**
 
+Set up Zoom for Wednesday’s online Qigong class
+
 social media post Qigong
 
 social media post yang sheng
