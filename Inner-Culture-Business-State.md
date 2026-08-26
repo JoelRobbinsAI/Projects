@@ -40,16 +40,13 @@ Add Edie classes to website
  
 **OUTREACH TARGETS**
  
-1. Domino’s Farms Fitness Center
-2. Travis Pointe Country Club
-3. Erin Cantrell Fitness
-4. Health & Fitness Center at Washtenaw Community College — leverage Power Wellness connection
-5. Meri Lou Murray Recreation Center — existing outreach 
-6. Michigan Recreation / University of Michigan
-7. Fit2Live
-8. Blue Lion Fitness
-9. OSLO Movement
-10. 3N1 Fitness Revolution
+1. Health & Fitness Center at Washtenaw Community College — leverage Power Wellness connection
+2. Meri Lou Murray Recreation Center — existing outreach 
+3. Michigan Recreation / University of Michigan
+4. Fit2Live
+5. Blue Lion Fitness
+6. OSLO Movement
+7. 3N1 Fitness Revolution
  
 **LATER**
  
