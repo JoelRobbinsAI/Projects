@@ -1,6 +1,6 @@
 **ACTIVE TASKS**
 
-application WCCC H&F
+application WCC H&F
 
 Test Zoom for Wednesdays class
 
