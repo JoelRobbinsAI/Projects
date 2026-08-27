@@ -2,10 +2,6 @@
 
 application WCC H&F
 
-Test Zoom for Wednesdays class
-
-social media post Qigong
-
 social media post yang sheng
 
 put up flyer for Yang Sheng/Qigong class.
