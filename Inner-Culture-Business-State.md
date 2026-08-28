@@ -1,7 +1,5 @@
 **ACTIVE TASKS**
 
-application WCC H&F
-
 social media post yang sheng
 
 put up flyer for Yang Sheng/Qigong class.
