@@ -1,5 +1,7 @@
 **ACTIVE TASKS**
 
+yang Sheng Hand bills
+
 social media post yang sheng
 
 put up flyer for Yang Sheng/Qigong class.
