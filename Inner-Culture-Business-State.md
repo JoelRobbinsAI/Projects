@@ -10,7 +10,7 @@ put up flyer for Yang Sheng/Qigong class.
 
 ☐ collect active student list 
 
-☐ Complete Chelsea Wellness onboarding: 2 trainings plus CPR.
+☐ Complete Chelsea Wellness onboarding: 2 trainings
  
 ☐ Collect emails for the newsletter.
  
