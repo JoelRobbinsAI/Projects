@@ -9,8 +9,6 @@ put up flyer for Yang Sheng/Qigong class.
 ☐ Birthday present for my brother
 
 ☐ collect active student list 
-
-☐ Complete Chelsea Wellness onboarding: 2 trainings
  
 ☐ Collect emails for the newsletter.
  
