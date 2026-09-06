@@ -8,6 +8,8 @@ put up flyer for Yang Sheng/Qigong class.
 
 ☐ Birthday present for my brother
 
+apply for senior center taichi jobs
+
 ☐ collect active student list 
  
 ☐ Collect emails for the newsletter.
