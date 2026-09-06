@@ -1,10 +1,8 @@
 **ACTIVE TASKS**
 
+☐ Announce the Qigong class on Patreon.
+
 yang Sheng Hand bills
-
-social media post yang sheng
-
-put up flyer for Yang Sheng/Qigong class.
 
 ☐ Birthday present for my brother
 
@@ -15,8 +13,10 @@ apply for senior center taichi jobs
 ☐ Collect emails for the newsletter.
  
 ☐ Create the MailerLite plan.
- 
-☐ Announce the Qigong class on Patreon.
+
+social media post yang sheng
+
+put up flyer for Yang Sheng/Qigong class
 
 Add Edie classes to website
  
@@ -28,21 +28,25 @@ Add Edie classes to website
  
 ☐ Follow up with Liberty Athletic Club — Colette Kress.
  
-☐ Follow up with Dr. Lu’s office.
- 
 **IN PROCESS / ACTIVE OPPORTUNITIES**
  
 ★ Dexter Senior Center — Qigong & Meditation:  Waiting for Dexter Senior Center to respond with possible dates/times and next steps.
  
 **OUTREACH TARGETS**
- 
-1. Health & Fitness Center at Washtenaw Community College — leverage Power Wellness connection
+
 2. Meri Lou Murray Recreation Center — existing outreach 
 3. Michigan Recreation / University of Michigan
-4. Fit2Live
-5. Blue Lion Fitness
-6. OSLO Movement
-7. 3N1 Fitness Revolution
+
+SENIOR CENTER OUTREACH TARGETS
+
+Clarendale Ann Arbor
+All Seasons Ann Arbor
+Hillside Terrace Senior Living
+Brookdale Ann Arbor
+Ann Arbor Senior Center
+Turner Senior Resource Center
+University Living — Megan's lead
+Gilbert Residence — Megan's lead
  
 **LATER**
  
